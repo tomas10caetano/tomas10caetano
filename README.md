@@ -8,6 +8,16 @@ I am starting to develop my own projects in quantum computing and am eager to en
 
 Outside of academics, I enjoy staying active at the **gym**, and **football** is one of my biggest passions.
 
+---
+
+## Let's Connect
+
+Feel free to connect with me:
+
+- [LinkedIn](www.linkedin.com/in/tomás-caetano-37282a2b3)
+- Email: tomascaetano2004@gmail.com
+
+
 
 
 
