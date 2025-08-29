@@ -14,7 +14,7 @@ Outside of academics, I enjoy staying active at the **gym**, and **football** is
 
 Feel free to connect with me:
 
-- [LinkedIn](www.linkedin.com/in/tomás-caetano-37282a2b3)
+- [LinkedIn](https://www.linkedin.com/in/tomás-caetano-37282a2b3)
 - Email: tomascaetano2004@gmail.com
 
 
